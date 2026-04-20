@@ -1,4 +1,4 @@
-# 和你在一起的每一刻，都像是做梦一样美好
+# [和你在一起的每一刻，都像是做梦一样美好](https://tvmao.gitbook.io/tvmao-docs/)
 
 ### 1. jinrigengxin.cloud：每日更新导航入口  
 网站地址：[https://www.jinrigengxin.cloud](https://www.jinrigengxin.cloud)  
